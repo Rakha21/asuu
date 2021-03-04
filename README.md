@@ -1,13 +1,2 @@
-○
-━━━━━┓
-┓┓┓┓┓┃ ヽ○ノ
-┓┓┓┓┓┃     /
-┓┓┓┓┓┃ ノ)  
-┓┓┓┓┓┃ Aowkaowkoakow
-┓┓┓┓┓┃ DAHLAH ESCE JEMLEK
-┓┓┓┓┓┃
-┓┓┓┓┓┃
-┓┓┓┓┓┃
-┓┓┓┓┓┃
-┓┓┓┓┓┃
-┓┓┓┓┓┃
+Aowkaowkoakow
+DAHLAH ESCE JEMLEK
